@@ -1,1 +1,2 @@
-# A_vigaensas_Mobile
+Nama  : Viga Ensas Fii Sabilillah
+NIM   : E41190493
